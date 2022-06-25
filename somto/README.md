@@ -1,2 +1,2 @@
-# somto.oriaku.github.io
+# nathangs6.github.io
 Website
